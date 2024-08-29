@@ -6,4 +6,6 @@ How to reach me: If I know you then you know how to. ¯\_(ツ)_/¯
 
 wasitacatisaw
 
+The Future Is Ours. 
+
 I'll work on the github page later on.
