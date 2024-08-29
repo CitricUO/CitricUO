@@ -15,16 +15,10 @@ The Future Is Ours.
 I'll work on the github page later on.
 
 Much to come.
-<angel_of_the_blade/>
-
-â̵͝n̶͍̔g̷͋́ẻ̶̛l̵̀͂ ̵̉́õ̵f the blad̷̃͑ẽ̷̾
 
 𝔞𝔫𝔤𝔢𝔩 𝔬𝔣 𝔱𝔥𝔢 𝔟𝔩𝔞𝔡𝔢
 
-𝓪𝓷𝓰𝓮𝓵 𝓸𝓯 𝓽𝓱𝓮 𝓫𝓵𝓪𝓭𝓮
+![image](https://github.com/user-attachments/assets/f276eb9b-969a-4c5f-8455-2e67b49cc433)
 
-𝕒𝕟𝕘𝕖𝕝 𝕠𝕗 𝕥𝕙𝕖 𝕓𝕝𝕒𝕕𝕖
-
-ᴀɴɢᴇʟ ᴏꜰ ᴛʜᴇ ʙʟᴀᴅᴇ
 
 ![image](https://github.com/user-attachments/assets/7e18dba9-cdc1-47a9-9bc0-488f8a952f35)
