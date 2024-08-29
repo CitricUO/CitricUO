@@ -9,3 +9,5 @@ wasitacatisaw
 The Future Is Ours. 
 
 I'll work on the github page later on.
+
+![image](https://github.com/user-attachments/assets/210303d3-949b-4938-bc26-526b8dd4864d)
