@@ -1,7 +1,5 @@
 ![image](https://github.com/user-attachments/assets/2b919884-df38-46b0-9e39-4d48b78dbc91)
 
-![image](https://github.com/user-attachments/assets/69df14f4-7742-4cff-8709-519e24c186b0)
-
 Hi, I’m @CitricUO
 
 I’m interested in: Game Development, Programming, Music Production, Content Creation, Art, TBC
