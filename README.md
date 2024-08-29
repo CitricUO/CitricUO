@@ -15,5 +15,4 @@ The Future Is Ours.
 I'll work on the github page later on.
 
 Much to come.
-
-![image](https://github.com/user-attachments/assets/1b4cbc72-b6f7-4afb-aba6-ac1e88726e5e)
+![image](https://github.com/user-attachments/assets/53c96bd8-adba-4947-96dd-88d75f9a3217)
