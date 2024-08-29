@@ -8,7 +8,7 @@ How to reach me: If I know you then you know how to. ¯\_(ツ)_/¯
 
 wasitacatisaw
 
-The experiments will come.
+The experiments will begin.
 
 The Future Is Ours. 
 
