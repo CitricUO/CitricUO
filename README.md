@@ -8,6 +8,8 @@ How to reach me: If I know you then you know how to. ¯\_(ツ)_/¯
 
 wasitacatisaw
 
+The experiments will come.
+
 The Future Is Ours. 
 
 I'll work on the github page later on.
