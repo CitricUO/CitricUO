@@ -16,6 +16,4 @@ I'll work on the github page later on.
 
 Much to come.
 
-![image](https://github.com/user-attachments/assets/53c96bd8-adba-4947-96dd-88d75f9a3217)
-![image](https://github.com/user-attachments/assets/6d4265ce-6f41-4ae9-8122-3466357b46e3)
 ![image](https://github.com/user-attachments/assets/fc304aa7-cbaa-4e90-b275-05834da77298)
