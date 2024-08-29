@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/4e0ed326-f01c-4ffc-af9d-432ebff4d3ce)
+![image](https://github.com/user-attachments/assets/b4cd3e75-efb2-4eaf-9552-dc40f70c9e3f)
 
 Hi, I’m @CitricUO
 
